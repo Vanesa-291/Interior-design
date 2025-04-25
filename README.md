@@ -1,2 +1,2 @@
-# Dise-o-de-interiores
+# Interior design
 Diseño de interiores
